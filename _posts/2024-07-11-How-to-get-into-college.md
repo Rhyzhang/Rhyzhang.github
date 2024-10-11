@@ -8,7 +8,7 @@ categories: ideas
 ---
 
 
-Thank you so much to Tina Zeng (tinazeng131@gmail.com) and Daniel Halpern for reviewing this post.
+Thank you so much to [Tina Zeng](https://www.linkedin.com/in/xinjie-tina-zeng/) and [Daniel Halpern](https://www.linkedin.com/in/daniel-halpern-424739264/) for reviewing this post.
 
 To my lowerclassmen friends at ERHS…
 
